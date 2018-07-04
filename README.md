@@ -9,7 +9,7 @@ change index.php and wish.php
 
 replace analytics code and google adsense code
 
-Contact Amazon 1-844-425-433 call now
+Contact Amazon 1-855-316-0111 call now
 Cancel Amazon Prime Membership
 amazon prime customer service number 
 Amazon Prime Phone Number
@@ -24,8 +24,4 @@ amazon prime membership customer service
 Amazon Prime Phone Number
 customer service amazon prime
 
-
-for more info visit below links
-https://www.crunchbase.com/organization/blockchain-wallet-inc
-
-http://amazonprimenumber.com/
+<a href="https://supportamazonprime.com">Support Amazon Prime Customer</a>
